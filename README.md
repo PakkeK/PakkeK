@@ -1,8 +1,8 @@
 ## 𝗛𝗶, 𝗶'𝗺 𝗗𝗺𝗶𝘁𝗿𝘆 :sunny:
+### 𝗦𝗼𝗳𝘁𝘄𝗮𝗿𝗲 𝗧𝗲𝘀𝘁𝗲𝗿 & 𝗜𝗻𝗱𝗶𝗲 𝗗𝗲𝘃𝗲𝗹𝗼𝗽𝗲𝗿.
 
-I love coding 💘 And currently I am actively developing in software testing.
 
-In my free time, I spend my free time developing indie games or walking in nature. :ocean:
+
 
 ___
 

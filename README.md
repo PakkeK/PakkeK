@@ -1,9 +1,8 @@
-## Hi, i'm Dmitry :sunny:
+## 𝐇𝐢, 𝐢'𝐦 𝐃𝐦𝐢𝐭𝐫𝐲 :sunny:
 
-I love coding :cupid:
-But at the moment I’m actively developing in software testing.
+I love coding 💘 And currently I am actively developing in software testing.
 
-In my free time I develop games (mobile and browser), enjoy competitive games and outdoor recreation :ocean:
+In my free time, I spend my free time developing indie games or walking in nature. :ocean:
 
 ___
 

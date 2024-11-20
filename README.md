@@ -1,6 +1,5 @@
-## Hi :sunny:
+## Hi, i'm Dmitry :sunny:
 
-My name is Dmytry!
 I love coding :cupid:
 But at the moment I’m actively developing in software testing.
 

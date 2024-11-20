@@ -1,4 +1,4 @@
-## 𝐇𝐢, 𝐢'𝐦 𝐃𝐦𝐢𝐭𝐫𝐲 :sunny:
+## 𝗛𝗶, 𝗶'𝗺 𝗗𝗺𝗶𝘁𝗿𝘆 :sunny:
 
 I love coding 💘 And currently I am actively developing in software testing.
 
